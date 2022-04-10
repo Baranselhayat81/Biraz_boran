@@ -1,0 +1,2 @@
+# Biraz_boran
+Girişimcilik 
